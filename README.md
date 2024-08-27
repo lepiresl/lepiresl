@@ -5,4 +5,5 @@
 - 📫 Não sei 
 - 😄 Ela/Dela
 - ⚡ Amo dormir
-- ![](https://media1.tenor.com/m/G9SeruPOqiIAAAAd/%D0%BF%D0%BB%D1%8F%D0%B6-beach.gif)
+- 
+- ![](https://media1.tenor.com/m/zhKaH8g5z1kAAAAC/cappies-the-cappies.gif)
