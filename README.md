@@ -4,9 +4,5 @@
 - 💞️ Colaboração 
 - 📫 Não sei 
 - 😄 Ela/Dela
-- ⚡ Amo dormir 
-
-<!---
-lepiresl/lepiresl is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- ⚡ Amo dormir
+- ![](https://media1.tenor.com/m/G9SeruPOqiIAAAAd/%D0%BF%D0%BB%D1%8F%D0%B6-beach.gif)
